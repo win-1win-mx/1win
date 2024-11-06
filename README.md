@@ -1,4 +1,4 @@
-<h2>Amplia Variedad de Juegos en <a href="https://1win1.mxt/">1win </a>: Algo para Todos los Gustos</h2>
+<h2>Amplia Variedad de Juegos en <a href="https://1win1.mx/">1win </a>: Algo para Todos los Gustos</h2>
 <p>Con una interfaz intuitiva y visualmente atractiva, <strong>1Win</strong> ofrece una diversidad de opciones de juego pensadas para satisfacer diferentes gustos y estilos de juego. La plataforma reúne más de <strong>1,500 tragamonedas</strong> y una completa sección de <strong>apuestas deportivas</strong> que abarca <strong>40 disciplinas</strong>, desde deportes convencionales hasta populares opciones de esports como <em>Dota 2</em> y <em>CS:GO</em>. Esto permite a los jugadores seleccionar entre una gran variedad de categorías y apostar en deportes o juegos que mejor se adapten a sus preferencias.</p>
 <p>Además, 1Win opera con una <strong>licencia internacional emitida en Curazao</strong>, lo cual garantiza una plataforma confiable y segura. Los usuarios pueden estar seguros de que sus datos personales y financieros están resguardados con tecnología avanzada de protección de datos.</p>
 
